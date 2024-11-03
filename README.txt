@@ -1,0 +1,1 @@
+I Just think bout this one N Im ask AI About This one
